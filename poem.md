@@ -3,52 +3,28 @@
 
 by Maya Angelou 
 
-They have spent their
-
-content of simpering,
-
-holding their lips this
-
-and that way, winding
-
-the lines between
-
-their brows. Old folks
-
-allow their bellies to jiggle like slow
-
-tambourines.
-
-The hollers
-
-rise up and spill
-
-over any way they want.
-
-When old folks laugh, they free the world.
-
-They turn slowly, slyly knowing
-
-the best and the worst
-
-of remembering.
-
-Saliva glistens in
-
-the corners of their mouths,
-
-their heads wobble
-
-on brittle necks, but
-
-their laps
-
-are filled with memories.
-
-When old folks laugh, they consider the promise
-
-of dear painless death, and generously
-
-forgive life for happening
-
-to them. 
+They have spent their <br>
+content of simpering,<br>
+holding their lips this<br>
+and that way, winding<br>
+the lines between<br>
+their brows. Old folks<br>
+allow their bellies to jiggle like slow<br>
+tambourines.<br>
+The hollers<br>
+rise up and spill<br>
+over any way they want.<br>
+When old folks laugh, they free the world.<br>
+They turn slowly, slyly knowing<br>
+the best and the worst<br>
+of remembering.<br>
+Saliva glistens in<br>
+the corners of their mouths,<br>
+their heads wobble<br>
+on brittle necks, but<br>
+their laps<br>
+are filled with memories.<br>
+When old folks laugh, they consider the promise<br>
+of dear painless death, and generously<br>
+forgive life for happening<br>
+to them. <br>
